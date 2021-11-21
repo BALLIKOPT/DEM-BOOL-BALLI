@@ -1,4 +1,5 @@
-Thank you for using our template!
+Thank you for using our template!пиздец на хуй 
+
 
 For more awesome templates please visit https://colorlib.com/wp/templates/
 
